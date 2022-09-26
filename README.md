@@ -5,4 +5,4 @@ hello weeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 
 dddd
 
-ไม่อยากทำโปรแล้วววววว
+ไม่อยากทำโปรเจ็คแล้วววววว
